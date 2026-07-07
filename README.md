@@ -19,4 +19,11 @@
 <p align="center"><em>✧―――――――――――☽☆About Me☆☾―――――――――――✧</em></p>
 
 <p align="center"><em>✦I enjoy roleplaying and chatting on ponytown, feel free to whisper me or C+H!✦</em></p>
-<p align="center"><em>☽☆My Interests include...☆☾</em></p>
+<p align="center"><em>My Interests are absolutely all over the place but they include</em></p>
+
+<p align="center">
+<em>
+⍟🎲;Forsaken
+⍟⚔️;BlockTales
+⍟👁;A ReGect
+⍟
