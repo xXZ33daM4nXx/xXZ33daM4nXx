@@ -5,3 +5,5 @@
 <p align="center"><em>Make sure not to look into their eyes </em></p>
 
 <p align="center"><em>Please call me Zee or Quixote or whatever character I am cosplaying</em></p>
+
+<p align="center"><em> I go by any pronouns, Genderfluid, Pansexual</em></p>
