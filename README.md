@@ -36,6 +36,8 @@
 <p align="center">『PLEASE NOTE THAT WHILE I MAY LIKE CONTROVERSIAL MEDIA, I DO NOT SUPPORT THE CREATORS ACTIONS IN ANY WAY SHAPE OR FORM, AS FOR THE PRESSURE SITUATION I REMAIN COMPLETELY NEUTRAL』</em></p>
 
 <p align="center">𝕊𝕥𝕒𝕞𝕡 ℂ𝕠𝕝𝕝𝕖𝕔𝕥𝕚𝕠𝕟(o^▽^o)</em></p>
-<img width="396" height="224" alt="image" src="https://github.com/user-attachments/assets/4f6d51fb-8029-40b6-b9ca-ef2b0825b4bf" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/709a3a50-06e0-47d4-ba60-12f64c555e8f" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ec4c3ea0-042c-4ff6-aada-c52941a0cf6b" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/7dbbd131-45c6-4d8f-9db5-b856ef9e6b4e" />
+
+
 
 
