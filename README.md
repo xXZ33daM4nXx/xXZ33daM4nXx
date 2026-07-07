@@ -15,4 +15,4 @@
 <p align="center"><em>✧DNI Proshippers/Darkshippers, you are utterly disgusting and need serious help✧</em></p>
 <p align="center"><em>✧DNI MAGA, Bigots, TERFS, Zoophiles, CopyTown supporters/users✧</em></p>
 
-<p align="center"><em>✧IWC Identity V fans (bad memories, nothing against yall) 
+<p align="center"><em>✧IWC Identity V fans (bad memories, nothing against yall) ✧</em></p>
