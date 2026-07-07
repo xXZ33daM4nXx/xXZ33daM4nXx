@@ -36,7 +36,8 @@
 <p align="center">『PLEASE NOTE THAT WHILE I MAY LIKE CONTROVERSIAL MEDIA, I DO NOT SUPPORT THE CREATORS ACTIONS IN ANY WAY SHAPE OR FORM, AS FOR THE PRESSURE SITUATION I REMAIN COMPLETELY NEUTRAL』</em></p>
 
 <p align="center">𝕊𝕥𝕒𝕞𝕡 ℂ𝕠𝕝𝕝𝕖𝕔𝕥𝕚𝕠𝕟(o^▽^o)</em></p>
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fb6b1cfb-8f8e-4347-9ccc-a786b052f700" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3eb5816e-0dff-4901-af96-67e8e4945092" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/aa2b42b5-405f-4a2a-bfee-470bd2b204b8" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/240e8019-c385-4b1a-ae49-0560f90ec0f5" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fb6b1cfb-8f8e-4347-9ccc-a786b052f700" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3eb5816e-0dff-4901-af96-67e8e4945092" /><img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/aa2b42b5-405f-4a2a-bfee-470bd2b204b8" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/240e8019-c385-4b1a-ae49-0560f90ec0f5" /><img width="100" height="50" alt="voca fan" src="https://github.com/user-attachments/assets/d75654ad-4013-46a4-a88e-dd6057bedfd1" />
+
 
 
 
