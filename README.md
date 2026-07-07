@@ -20,12 +20,15 @@
 
 <p align="center"><em>✦I enjoy roleplaying and chatting on ponytown, feel free to whisper me or C+H!✦</em></p>
 <p align="center"><em>✦I am DIAGNOSED Autistic+ADHD so I apologize that I really need tonetags in conversations and have issues picking up on certain social ques</em></p>
-<p align="center"><em>✦I am very insecure about my childish interests, personality, and unemployment, Yeah Im an unemployed chud, they aint shit hiring in my tiny ass town✦</em></p>
-<p align="center"><em>My Interests are absolutely all over the place but they include</em></p>
+<p align="center"><em>✦I am very insecure about my childish interests, personality, and unemployment, Yeah Im an unemployed chud, they aint shit hiring in my tiny ass town 😞✦</em></p>
+<p align="center"><em>My Interests are absolutely all over the place,you can always ask me if I am interested in certain media but they include</em></p>
 
 <p align="center">
 <em>
 ⍟🎲;Forsaken<br>
 ⍟⚔️;BlockTales<br>
 ⍟👁;A ReGect<br>
-⍟
+⍟🔪;Madness Combat<br>
+⍟🌊;Pressure (ROBLOX)<br>
+
+<p align="center">『PLEASE NOTE THAT WHILE I MAY LIKE CONTROVERSIAL MEDIA, I DO NOT SUPPORT THE CREATORS ACTIONS IN ANY WAY SHAPE OR FORM, AS FOR THE PRESSURE SITUATION I REMAIN COMPLETELY NEUTRAL』</em></p>
