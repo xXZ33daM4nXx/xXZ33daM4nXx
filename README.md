@@ -10,3 +10,4 @@
 <img width="2048" height="154" alt="image" src="https://github.com/user-attachments/assets/021908fb-0684-43ba-815a-2df6c8e2e268" />
 
 <p align="center"><em>☽『DNI/Boundaries』☾</em></p>
+<p align="center"><em>✧I AM TAKEN, PLEASE DO NOT GENUINELY FLIRT WITH ME UNLESS YOURE JOKING, SPECIFY YOURE JOKING WITH A TONE TAG✧</em></p>
