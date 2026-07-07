@@ -16,4 +16,4 @@
 <p align="center"><em>✧DNI MAGA, Bigots, TERFS, Zoophiles, CopyTown supporters/users✧</em></p>
 
 <p align="center"><em>✧IWC Identity V fans (bad memories, nothing against yall) ✧</em></p>
-<p align="center"><em>✧――――――☽☆☾――――――✧</em></p>
+<p align="center"><em>✧―――――――――――☽☆☾―――――――――――✧</em></p>
