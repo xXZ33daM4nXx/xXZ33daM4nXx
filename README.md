@@ -7,3 +7,6 @@
 <p align="center"><em>Please call me Zee or Quixote or whatever character I am cosplaying</em></p>
 
 <p align="center"><em> I go by any pronouns, Genderfluid, Pansexual</em></p>
+<img width="2048" height="154" alt="image" src="https://github.com/user-attachments/assets/021908fb-0684-43ba-815a-2df6c8e2e268" />
+
+<p align="center"><em>☽『DNI/Boundaries』☾</em></p>
