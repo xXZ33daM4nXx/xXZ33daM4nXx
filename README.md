@@ -23,7 +23,7 @@
 
 <p align="center">
 <em>
-⍟🎲;Forsaken
-⍟⚔️;BlockTales
-⍟👁;A ReGect
+⍟🎲;Forsaken<br>
+⍟⚔️;BlockTales<br>
+⍟👁;A ReGect<br>
 ⍟
