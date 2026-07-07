@@ -1,4 +1,3 @@
-<img width="99" height="56" alt="rabies enderman" src="https://github.com/user-attachments/assets/0a348fb5-95da-408f-b96e-a31c9eac6679" />
 
 <h1 align="center">✦ 𝕎𝕖𝕝𝕔𝕠𝕞𝕖 𝕥𝕠 𝕋𝕙𝕖 𝔼𝕟𝕕  ✦</h1>
 <img width="2048" height="163" alt="image" src="https://github.com/user-attachments/assets/7f22889a-6ed1-42fb-a2c5-5109cc954c06" />
