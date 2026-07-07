@@ -1,4 +1,5 @@
-<img width="1470" height="416" alt="image" src="https://github.com/user-attachments/assets/ea662916-1cde-4931-be4b-702ecffbe723" />
+<img width="1470" height="416" alt="Divider" src="https://github.com/user-attachments/assets/65af2f85-11ed-4180-ab1d-cb6c93b91cda" />
+
 
 
 <!--
