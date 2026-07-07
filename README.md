@@ -19,6 +19,8 @@
 <p align="center"><em>✧―――――――――――☽☆About Me☆☾―――――――――――✧</em></p>
 
 <p align="center"><em>✦I enjoy roleplaying and chatting on ponytown, feel free to whisper me or C+H!✦</em></p>
+<p align="center"><em>✦I am DIAGNOSED Autistic+ADHD so I apologize that I really need tonetags in conversations and have issues picking up on certain social ques</em></p>
+<p align="center"><em>✦I am very insecure about my childish interests, personality, and unemployment, Yeah Im an unemployed chud, they aint shit hiring in my tiny ass town✦</em></p>
 <p align="center"><em>My Interests are absolutely all over the place but they include</em></p>
 
 <p align="center">
