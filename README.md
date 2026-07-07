@@ -11,6 +11,8 @@
 
 <p align="center"><em>☽『DNI/Boundaries』☾</em></p>
 <p align="center"><em>✧I AM TAKEN, PLEASE DO NOT GENUINELY FLIRT WITH ME UNLESS YOURE JOKING, SPECIFY YOURE JOKING WITH A TONE TAG, IT MAKES ME GENUINELY UNCOMFORTABLE, IF IN AN RP THEN ITS FINE JUST DONT GENUINELY FLIRT PLS AND THX✧</em></p>
+
+<p align="center"><em>✧I do not mind if you take inspiration off my skins in Ponytown, just please do not outright copy them, I wanna see what you can do with your own originality mixed in✧</em></p>
 <p align="center"><em>➣DNI if you are under 18, My humor is not approriate for minors whatsoever</em></p>
 <p align="center"><em>✧DNI Proshippers/Darkshippers, you are utterly disgusting and need serious help✧</em></p>
 <p align="center"><em>✧DNI MAGA, Bigots, TERFS, Zoophiles, CopyTown supporters/users✧</em></p>
