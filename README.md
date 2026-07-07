@@ -29,6 +29,6 @@
 ⍟⚔️;BlockTales<br>
 ⍟👁;A ReGect<br>
 ⍟🔪;Madness Combat<br>
-⍟🌊;Pressure (ROBLOX)<br>
+⍟🌊;Pressure <br>
 
 <p align="center">『PLEASE NOTE THAT WHILE I MAY LIKE CONTROVERSIAL MEDIA, I DO NOT SUPPORT THE CREATORS ACTIONS IN ANY WAY SHAPE OR FORM, AS FOR THE PRESSURE SITUATION I REMAIN COMPLETELY NEUTRAL』</em></p>
