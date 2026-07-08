@@ -58,6 +58,8 @@
 
 
 <p align="center"><em>✧―――――――――――☽☆Blinkies Collection(o^▽^o)☆☾―――――――――――✧</em></p>
+<img width="150" height="20" alt="AO3" src="https://github.com/user-attachments/assets/c8917320-c753-4850-bea2-582a428866ed" /><img width="150" height="20" alt="willwood shovel" src="https://github.com/user-attachments/assets/a4c4b927-2da3-4809-9060-c8d883afd7af" />
+
 
 
 
