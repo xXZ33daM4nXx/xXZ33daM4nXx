@@ -14,7 +14,7 @@
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=sombra.of.umbra&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=631a93&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=sombra.of.umbra&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=631a93&bar_color_cover=false">
   </a>
 </p>
 <p align="center"><em><img width="3000" height="80" alt="checker divider" src="https://github.com/user-attachments/assets/7265e7f5-d656-4c08-92b2-eebd469a6b32" /></em></p>
