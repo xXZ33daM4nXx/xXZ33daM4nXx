@@ -1,6 +1,6 @@
 
 <h1 align="center">✦ 𝕎𝕖𝕝𝕔𝕠𝕞𝕖 𝕥𝕠 𝕋𝕙𝕖 𝔼𝕟𝕕  ✦</h1>
-<img width="385" height="29" alt="divider" src="https://github.com/user-attachments/assets/a86b681e-e89a-4086-a504-be43a86249d3" />
+<p align="center"><em><img width="385" height="29" alt="divider" src="https://github.com/user-attachments/assets/a86b681e-e89a-4086-a504-be43a86249d3" /></em></p>
 
 
 <p align="center"><em>Make sure not to look into their eyes </em></p>
