@@ -16,7 +16,8 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=sombra.of.umbra&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=631a93&bar_color_cover=false">
   </a>
 </p>
-<img width="2048" height="154" alt="image" src="https://github.com/user-attachments/assets/021908fb-0684-43ba-815a-2df6c8e2e268" />
+<img width="531" height="20" alt="checker divider" src="https://github.com/user-attachments/assets/7265e7f5-d656-4c08-92b2-eebd469a6b32" />
+
 
 <p align="center"><em>☽『DNI/Boundaries』☾</em></p>
 <p align="center"><em>✧I AM TAKEN, PLEASE DO NOT GENUINELY FLIRT WITH ME UNLESS YOURE JOKING, SPECIFY YOURE JOKING WITH A TONE TAG, IT MAKES ME GENUINELY UNCOMFORTABLE, IF IN AN RP THEN ITS FINE JUST DONT GENUINELY FLIRT PLS AND THX✧</em></p>
