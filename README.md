@@ -6,7 +6,7 @@
 
 <p align="center"><em>Make sure not to look into their eyes </em></p>
 
-<p align="center"><em>Please call me Zee or Quixote or whatever character I am cosplaying</em></p>
+<p align="center"><em>Please call me Kon or Dex or whatever character I am cosplaying</em></p>
 
 <p align="center">✦A real life Enderman✦</em></p>
   
@@ -25,15 +25,15 @@
 
 <p align="center"><em>✧I do not mind if you take inspiration off my skins in Ponytown, just please do not outright copy them, I wanna see what you can do with your own originality mixed in✧</em></p>
 <p align="center"><em>➣DNI if you are under 18, My humor is not approriate for minors whatsoever</em></p>
-<p align="center"><em>✧DNI Proshippers/Darkshippers, you are utterly disgusting and need serious help✧</em></p>
+<p align="center"><em>✧DNI Proshippers, you are utterly disgusting and need serious help✧</em></p>
 <p align="center"><em>✧DNI MAGA, Bigots, TERFS, Zoophiles, CopyTown supporters/users✧</em></p>
 
 <p align="center"><em>✧IWC Identity V fans (bad memories, nothing against yall) ✧</em></p>
 <p align="center"><em>✧―――――――――――☽☆About Me☆☾―――――――――――✧</em></p>
 
 <p align="center"><em>✦I enjoy roleplaying and chatting on ponytown, feel free to whisper me or C+H!✦</em></p>
-<p align="center"><em>✦I am DIAGNOSED Autistic+ADHD so I apologize that I really need tonetags in conversations and have issues picking up on certain social ques</em></p>
-<p align="center"><em>✦I am very insecure about my childish interests, personality, and unemployment, Yeah Im an unemployed chud, they aint shit hiring in my tiny ass town 😞✦</em></p>
+<p align="center"><em>✦I am DIAGNOSED Autistic+ADHD, currently in the process of OSDD diagnosis as well as BPD so I apologize that I really need tone tags in conversations and have issues picking up on certain social ques</em></p>
+<p align="center"><em>✦I am very insecure about my childish interests, personality✦</em></p>
 <p align="center"><em>My Interests are absolutely all over the place,you can always ask me if I am interested in certain media but they include</em></p>
 
 <p align="center">
