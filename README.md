@@ -40,7 +40,7 @@
 <em>
 ⍟🎲;Forsaken<br>
 ⍟⚔️;BlockTales<br>
-⍟👁;A ReGect<br>
+⍟👁;Mononoke<br>
 ⍟🔪;Madness Combat<br>
 ⍟🌊;Pressure <br>
 
